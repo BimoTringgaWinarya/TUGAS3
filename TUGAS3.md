@@ -1,0 +1,1 @@
+Halo perkenalkan nama saya Bimo Tringga Winarya dari Program Studi Geofisika Fakultas Matematika dan Ilmu Pengetahuan Alam angkatan 2023 Universitas Gadjah Mada salam kenal semuanya
